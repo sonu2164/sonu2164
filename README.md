@@ -1,6 +1,6 @@
 # Sonu Singh
 
-📧 sonu037singh@gmail.com | 🌐 [LinkedIn](link) | 💻 [GitHub](link) | 📚 [LeetCode](link) | 🖼️ [Portfolio](link) | 📱 +91 9839019095
+📧 sonu037singh@gmail.com
 
 ## Experience
 
