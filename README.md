@@ -1,4 +1,5 @@
 # Sonu Singh
+[![sonu2164's GitHub | Stats](https://stats.quira.sh/sonu2164/github?theme=dark)](https://quira.sh?utm_source=widgets&utm_campaign=sonu2164)
 
 📧 sonu037singh@gmail.com
 
